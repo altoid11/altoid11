@@ -1,1 +1,6 @@
-im learnin java and python im kinda trash and will contribute bug ridden garbage<3
+aaaaaa
+
+
+
+
+%x%x%x%x%x
